@@ -13,4 +13,4 @@
 **This is just the beginning**
 *Watch out for more projects*
 
-**Do you wanna start coding but have no idea how to start and dont have enough money too? Worry no modre! Just ** [click here](https://www.theprogrammershub.net).
+**Do you wanna start coding but have no idea how to start and dont have enough money too? Worry no more! Programmershub got your back Just ** [click here](https://www.theprogrammershub.net).
